@@ -1,7 +1,7 @@
 Ok, im San4ez (was busy, so i taked "San4eezz)
 Im trying to learn Unity.
-Wanna remake some games of my chieldhood,
-and if they will non-profit - 
+Wanna remake some games of my childhood,
+and if that will non-profit - 
 going to become a worker of a someone's company.
 
 Im Ukrainian teen (17 y.o.)
